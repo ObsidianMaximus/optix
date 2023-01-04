@@ -37,3 +37,23 @@ Password if not mentioned in the posts is cs.rin.ru
 http://disq.us/p/2sag05j
 
 https://fitgirl-repacks.site/days-gone/
+
+
+level 3
+DeusVermiculus
+·
+8 hr. ago
+
+the indie scene is incredibly vast.
+
+    If you like management sims, look at factorio or satisfactory.
+
+    if you enjoy metroidvania check out "Hollow knight", "Ori and the blind forest/ori and the will of the whisps", "Ender Lillies"
+
+    if you like deck-builders have a look at "slay the spire", "Loop Hero"
+
+    if you like action rouge-likes look at Hades, Dead Cells, BPM, Noita, Binding of Isaac, Rouge legacy and "have a nice death"
+
+    Strategy and management games are "AI-War" 1 and 2, Halcion 6, Convoy, FTL, Prision architect, Rimworld, Rise to Ruins, Dwarf fortress
+
+that only scratches the surface.
